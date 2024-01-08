@@ -40,7 +40,7 @@ Parking, Traffic
 Lack of real consultation with local residents
 
 
-Much more detail about all of these points, and a guide to how you can be found in our information leaflet which can be downloaded [here](/assets/stop-30-causeway-flyer.pdf) 
+Much more detail about all of these points, and a guide to how you can effectively reply can be found in our information leaflet which can be downloaded [here](/assets/stop-30-causeway-flyer.pdf) 
 
 Remember:
 - Objections can only be made against these specific criteria
